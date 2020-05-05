@@ -1,0 +1,2 @@
+# Synx-esports
+esports company
